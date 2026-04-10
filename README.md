@@ -1,2 +1,9 @@
-# TamilWorship_Album24_Psalm93_98_TheLordReigns
-Psalm 93–98 Series: The Lord Reigns | Album 24
+Album 24 – Psalm 93 to 98 Series
+
+Anointed Tamil worship songs declaring that the Lord reigns over all creation.
+
+Contents:
+• All 6 Tamil & English MP3s
+• Lyrics PDFs
+
+Freely given – All glory to Jesus Christ.
